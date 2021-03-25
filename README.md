@@ -1,0 +1,2 @@
+# DE-REVUELTA-MINHA-PALAVRA
+Uma obra de Gabriela Golder e Daniel Lima Uma instalação em espaço virtual que parte de um diálogo entre duas perspectivas, duas etnias, dois gêneros, duas línguas, duas nações. Desde uma visão anticolonial se enredam em revolta duas concepções autorais em que palavras representam desejos, imaginários, utopias, distopias, forças de destruição e criação. Não há resposta evidente, não há caminhos traçados, só um labirinto, uma tempestade, uma armadilha ou possibilidade, permanecer no limite, continuar ou decifrar a saída.
